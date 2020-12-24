@@ -1,4 +1,4 @@
-# RULE-BRITANNIA-MOD
+# RULE BRITANNIA MOD
 ## A Rome 2: Total War Mod for an overpowered Iceni faction
 
 You DON'T want any challenge and just conquer the world without lifting a finger? Then this mod is for you.
